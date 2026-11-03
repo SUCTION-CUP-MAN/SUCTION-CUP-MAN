@@ -2,7 +2,7 @@
 
 <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=crowd&color=C4A33D" />
 
-<sub>[contact me](https://soul-vester.atabook.org) ⠀  ⠀     ⠀     ⠀      <sub>[send gimmicks](https://soulvesterr.straw.page)
+<sub>[contact me](https://soul-vester.atabook.org) ⠀  ⠀     ⠀     ⠀      ⠀  ⠀     ⠀     ⠀       <sub>[send gimmicks](https://soulvesterr.straw.page)
 
 - - -
 
