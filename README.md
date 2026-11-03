@@ -18,5 +18,5 @@
  ⠀  ⠀     ⠀     ⠀       [M4ggotz Friends Doc](https://docs.google.com/document/d/1cX8BDjCCOt_M1FU9HBdM-hn9J0Z7-V4ltKYY1lN5l58/edit?tab=t.0)
 
 
-<sub>i'll just be inserting the docs here and thats it, all of these are proof from the account themselves or screenshots which isnt fake infomation ty, please whisper me if anything happens, i will not be looking on this situation anymore unless i would have to add more to it.
+<sub>i'll just be inserting the docs here and thats it, all of these are proof from the account themselves or screenshots which isnt fake infomation ty, please whisper me if anything happens, i will not be looking on this situation anymore unless i would have to add more to it. if this account is suspended it's mostly due to them reporting / false-reporting.
 
