@@ -5,7 +5,7 @@
 - - -
 
 
-<img width= "210" src="https://file.garden/asK8R4fOscgWTCmj/촬영_20261103_174113.gif?v=1793748218049"/>
+<img width= "340" src="https://file.garden/asK8R4fOscgWTCmj/촬영_20261103_174113.gif?v=1793748218049"/>
 
 
 <table><tr><td>
