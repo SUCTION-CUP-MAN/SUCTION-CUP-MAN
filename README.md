@@ -1,7 +1,7 @@
 <div align="center">
 
 
-<sub>i'll just be inserting the docs here and thats it, all of these are proof from the account themselves or screenshots which isnt fake infomation ty, please whisper me if anything happens, i will not be looking on this situation anymore unless i would have to add more to it.
+
 
 <img width= "100" src="https://file.garden/asK8R4fOscgWTCmj/촬영_20261103_174113.gif?v=1793748218049"/>
 
