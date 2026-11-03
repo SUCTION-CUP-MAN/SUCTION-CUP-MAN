@@ -1,6 +1,6 @@
 <div align="center">
 
-
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=crowd&color=C4A33D" />
 
 
 <img width= "210" src="https://file.garden/asK8R4fOscgWTCmj/촬영_20261103_174113.gif?v=1793748218049"/>
