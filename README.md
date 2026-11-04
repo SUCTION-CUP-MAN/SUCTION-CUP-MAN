@@ -24,3 +24,4 @@
  
 <sub> "also its not mass reporting ! ! only two people reported soul shield please stop thinking ur some big thing people want to mass report over i promsie ur not"
 
+<sub> i don't consider myself a popular person nor will i ever, but the fact 2 people reported me is still baffling to me over me spreading the word?
