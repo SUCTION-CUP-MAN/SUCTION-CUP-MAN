@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=rent paid&color=C4A33D" />
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=rentpaid&color=C4A33D" />
 
 <sub>[contact me](https://soul-vester.atabook.org) ⠀  ⠀     ⠀     ⠀      ⠀  ⠀     ⠀     ⠀       <sub>[send gimmicks](https://soulvesterr.straw.page)
 
