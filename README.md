@@ -7,7 +7,7 @@
 - - -
 
 
-<img width= "340" src="https://file.garden/asK8R4fOscgWTCmj/촬영_20261103_174113.gif?v=1793748218049"/>
+<img width= "340" src="https://file.garden/asK8R4fOscgWTCmj/ezgif-33d5de3c26f322f4.gif?v=1793822384652"/>
 
 
 <table><tr><td>
