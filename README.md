@@ -22,7 +22,7 @@
 [M4ggotz Doc 1](https://docs.google.com/document/d/1ZH1cZka3lz2_FI0xEDNzwIxOBbwU-81v2j2nvIb9wkk/edit?tab=t.0)  ⠀  ⠀     ⠀     ⠀      [M4ggotz Doc 2](https://docs.google.com/document/d/1rIUWwXT7_WKxtXYrv5L023NqCthWwHqrSWpZuz0c5j8/edit?tab=t.0) ⠀  ⠀     ⠀     ⠀       [M4ggotz Doc 3](https://docs.google.com/document/d/1Ubq6HyxtDeAL61xFY5KmYQt6UC6MJ8yxQHa-MpwJk8c/edit?tab=t.0)
  ⠀  ⠀     ⠀     ⠀       [M4ggotz Friends Doc](https://docs.google.com/document/d/1cX8BDjCCOt_M1FU9HBdM-hn9J0Z7-V4ltKYY1lN5l58/edit?tab=t.0)  ⠀     ⠀     ⠀        [Doc made by Anon](https://docs.google.com/document/d/1lwi3l6MlrfqIIobDM9UQtIysC_9qWoLHEk-npNAk6qo/edit?tab=t.0) 
 
-<sub> anon if you want me to take off your doc please let me know, thank you.
+<sub> anon if you want me to take off your doc please let me know, thank you. I only have this doc on here because it's more well-written and understandable more than my doc to be honest, not saying my writing is bad but this doc can help you fully understand Timmy and Maggots Alt Account stuff and more!
 
 - - -
 
