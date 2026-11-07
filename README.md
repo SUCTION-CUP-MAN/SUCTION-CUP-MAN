@@ -6,7 +6,7 @@
 
 - - -
 
-<img src="ssstwitter.com_1794015638920.mp4"/>
+
 
 <img src="https://file.garden/asK8R4fOscgWTCmj/tumblr_3282602bfc7fcdae0958da82f5d5943e_8f2f037d_2048-removebg-preview.png?v=1793920693001" width="210"/>
 
