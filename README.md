@@ -8,7 +8,7 @@
 
 
 
-<img src="https://file.garden/asK8R4fOscgWTCmj/HWSY3fBW8AARrw8.jpeg" width="210"/>
+<img src="https://file.garden/asK8R4fOscgWTCmj/HWSY3fBW8AARrw8.jpeg" width="400"/>
 
 
 
