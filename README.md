@@ -4,6 +4,8 @@
 
 <sub>[contact me](https://soul-vester.atabook.org) ⠀  ⠀     ⠀     ⠀      ⠀  ⠀     ⠀     ⠀       <sub>[send gimmicks](https://soulvesterr.straw.page)
 
+<sub>if anyone who was in contact with ffr in the past or gotten harassed by them, please do tell in my ata i do not want these people to get away with things like these.
+
 - - -
 
 
