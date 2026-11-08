@@ -10,9 +10,26 @@
 
 - - -
 
+me and gordon
 
 
-<img src="https://file.garden/asK8R4fOscgWTCmj/HWSY3fBW8AARrw8.jpeg" width="600"/>
+
+<img width="410" height="487" alt="image" src="https://github.com/user-attachments/assets/4379cde0-d4e6-4741-9566-b311a62f7070" />
+
+<sub>15:51[jayingee or something idk] dude im so ugly
+
+<sub>15:51[jayingee or something idk] its making me mad
+
+<sub>15:51[albert , playing fisch] DUDEE
+
+<sub>15:51[albert , playing fisch] STOP
+
+<sub>15:51[albert , playing fisch] NO UR NOT
+
+<sub>15:52[jayingee or something idk] do u really mean it...!
+
+<sub>15:52[albert , playing fisch] yes..!
+
 
 
 
