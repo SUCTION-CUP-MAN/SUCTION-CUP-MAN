@@ -4,7 +4,7 @@
 
 <sub>[contact me](https://soul-vester.atabook.org) ⠀  ⠀     ⠀     ⠀      ⠀  ⠀     ⠀     ⠀       <sub>[send gimmicks](https://soulvesterr.straw.page)
 
-<sub>if anyone who was in contact with ffr in the past or gotten harassed by them, please do tell in my ata i do not want these people to get away with things like these.
+<sub>if anyone who was in contact with ffr in the past or gotten harassed by them, please do tell in my ata i do not want these people to get away with things like these, you may also send a gimmick about it if my ata isn't safe enough for you. Gimmicks take 1-4 days to send in, if they don't get in please just do my ata! Feel free to send me anything, any hate will probably be turned into a copypasta :trollface:
 
 - - -
 
