@@ -10,6 +10,10 @@
 
 - - -
 
+<sub>uhm iwec unless friends: sprout x soulvester, i don't feel comfy with any soulvester ship in general, i have most looey, waxwell and sprout x soulvester fans blocked/perm hidden, sorry if it does sound stupid i never liked the concept of ships that never make any sense to me.
+
+- - -
+
 me and gordon
 
 
