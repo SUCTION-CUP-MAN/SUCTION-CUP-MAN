@@ -6,7 +6,7 @@
 
 <sub>if anyone who was in contact with ffr in the past or gotten harassed by them, please do tell in my ata i do not want these people to get away with things like these, you may also send a gimmick about it if my ata isn't safe enough for you. Gimmicks take 1-4 days to send in, if they don't get in please just do my ata! Feel free to send me anything, any hate will probably be turned into a copypasta :trollface:
 
-<sub> Most messages talked about with FFR will be approved for everyone to see, and screenshotted for evidence; please contact me again if you don't want your message to be on the ata. I will not be showing them as screenshot proof due to the request if you want it hidden but it will be simply rewritten or mentioned.
+<sub> Most messages talked about with FFR will be approved for everyone to see, and screenshotted for evidence; please contact me again if you don't want your message to be on the ata. I will not be showing them as screenshot proof due to the request if you want it hidden but it will be simply rewritten or mentioned. To anyone who speaks up about their experience with FFR, thank you it really does show how far the rabbit hole goes.
 
 - - -
 
