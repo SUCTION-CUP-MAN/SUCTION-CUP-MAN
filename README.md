@@ -1,3 +1,6 @@
+revamp soon, most stuff about the drama will be in a dropbox :]
+
+
 <div align="center">
 
 <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=youguys&color=C4A33D" />
