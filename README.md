@@ -5,6 +5,9 @@
 <br><p align="center">${\textsf{\color{#e9a28e} ׁi⠀   dont⠀   really⠀   care ⠀  who⠀   i ⠀  interact⠀   with⠀   unless⠀   it's⠀   a ⠀  pro/dark }}$
 
 
-<p align="center">
-<img src="https://file.garden/asK8R4fOscgWTCmj/tumblr_40d61e95b307e8be1a0d302b0e8a380f_2f9a0c25_2048-removebg-preview.png" width="300"/>
+<div align="center">
+
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fcf20edd-b2ef-413a-9ba4-2c15355613de" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f302535f-758f-40fe-892b-deed7cb44a43" />
+
+
 
