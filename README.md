@@ -29,3 +29,10 @@
 
 
 
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#d41914}awareness}$</summary> 
+  
+[M4ggotz Doc 1](https://docs.google.com/document/d/1ZH1cZka3lz2_FI0xEDNzwIxOBbwU-81v2j2nvIb9wkk/edit?tab=t.0)  ⠀  ⠀     ⠀     ⠀      [M4ggotz Doc 2](https://docs.google.com/document/d/1rIUWwXT7_WKxtXYrv5L023NqCthWwHqrSWpZuz0c5j8/edit?tab=t.0) ⠀  ⠀     ⠀     ⠀       [M4ggotz Doc 3](https://docs.google.com/document/d/1Ubq6HyxtDeAL61xFY5KmYQt6UC6MJ8yxQHa-MpwJk8c/edit?tab=t.0)
+ ⠀  ⠀     ⠀     ⠀       [M4ggotz Friends Doc](https://docs.google.com/document/d/1cX8BDjCCOt_M1FU9HBdM-hn9J0Z7-V4ltKYY1lN5l58/edit?tab=t.0)  ⠀  ⠀     ⠀     ⠀      [FFR REPLY DOC](https://docs.google.com/document/d/1m_2LdYagfh9Hf4Z0OXlaxhNFWqvsVfT6chni5rKHnNo/edit?tab=t.j0is79b1658s)  ⠀  ⠀     ⠀     ⠀       [LACEDPUPP REPLY DOC](https://docs.google.com/document/d/1yHchbIL-U7M5PeQIXxzcTig4NM0xAOxbKvpp1a_-9Ns/edit?tab=t.0#heading=h.wp0mipqecaca)
+
+<sub>i'll just be inserting the docs here and thats it, all of these are proof from the account themselves or screenshots which isnt fake infomation ty, please whisper me if anything happens, i will not be looking on this situation anymore unless i would have to add more to it. Feel Free to contact me if you had any experience with ffr, i will be stepping away from the drama entirely.
