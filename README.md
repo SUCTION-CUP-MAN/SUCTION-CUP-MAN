@@ -7,7 +7,7 @@
 <br><p align="center">${\textsf{\color{#dd5267} ׁpro ⠀  or⠀  dark⠀  intwec⠀  +⠀  iwecuc⠀ (all to most are blocked) }}$
 <br><p align="center">${\textsf{\color{#e6cac9} ׁanyone ⠀  friends ⠀  w/ paw  ⠀ or  ⠀ vassago  ⠀ iwec }}$
   
-<sub>(i really dont like either of them sorry, i don't care if ur friends with them just dont bring them up at all. Same applies for the topic of FFA unless strictly TWS, or important. I do not want to be apart of the drama nor will my perspective change about these people.)
+<sub>(i really dont like either of them sorry, i don't care if ur friends with them just dont bring them up at all. Same applies for the topic of FFA unless strictly TWS, or important. I do not want to be apart of the drama nor will my perspective change about these people. To pro/darks please keep it private or never speak to me about it, i don't care what you do privately just don't do it around me or publicly thanks.)
 
 <div align="center">
   
