@@ -7,7 +7,7 @@
 <br><p align="center">${\textsf{\color{#dd5267} ׁpro ⠀  or⠀  dark⠀  intwec⠀  +⠀  iwecuc }}$
 <br><p align="center">${\textsf{\color{#e6cac9} ׁanyone ⠀  friends ⠀  w/ paw  ⠀ or  ⠀ vassago  ⠀ iwec }}$
   
-<sub></sub></sub>( i really dont like either of them sorry, i don't care if ur friends with them just dont bring them up at all 
+<sub>(i really dont like either of them sorry, i don't care if ur friends with them just dont bring them up at all)
 
 <div align="center">
   
