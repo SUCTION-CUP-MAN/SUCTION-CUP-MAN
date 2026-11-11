@@ -4,8 +4,10 @@
 <br><p align="center">${\textsf{\color{#dd5267}𖥻 ׁevan⠀  or⠀  sam}}$⠀  <img src="https://64.media.tumblr.com/45b305094624fc4561a61b9ca7808e0f/5bf23da5dbe7ae41-24/s75x75_c1/c38c04dda15932efd1e786eab1aa761c1e37bb50.pnj" width=19/>
 <br><p align="center">${\textsf{\color{#e6cac9} ׁalways⠀   interact⠀   with⠀   caution⠀   unless⠀   friends   ⠀   (๑ᵔ⤙ᵔ๑)}}$
 <br><p align="center">${\textsf{\color{#e9a28e} ׁi⠀   dont⠀   really⠀   care ⠀  who⠀   i ⠀  interact⠀   with⠀   unless⠀   it's⠀   a ⠀  pro/dark }}$
-<br><p align="center">${\textsf{\color{{#dd5267}} ׁpro ⠀  or⠀  dark⠀  intwec⠀  +⠀  iwecuc }}$
-<br><p align="center">${\textsf{\color{{#e6cac9}} ׁanyone ⠀  friends ⠀  w/ paw  ⠀ or  ⠀ vassago  ⠀ iwec }}$
+<br><p align="center">${\textsf{\color{#dd5267} ׁpro ⠀  or⠀  dark⠀  intwec⠀  +⠀  iwecuc }}$
+<br><p align="center">${\textsf{\color{#e6cac9} ׁanyone ⠀  friends ⠀  w/ paw  ⠀ or  ⠀ vassago  ⠀ iwec }}$
+  
+<sub></sub></sub>( i really dont like either of them sorry, i don't care if ur friends with them just dont bring them up at all 
 
 <div align="center">
   
