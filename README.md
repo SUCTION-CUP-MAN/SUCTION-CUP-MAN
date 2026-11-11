@@ -13,16 +13,19 @@
 
 <div align="center">
 
-<img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/><img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/>
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fcf20edd-b2ef-413a-9ba4-2c15355613de" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f302535f-758f-40fe-892b-deed7cb44a43" /> <img src="https://64.media.tumblr.com/3d2127349d998db8efa5d7430ae21da6/55e2c8658203e626-c0/s250x400/adeedf8cd734f2fd0cbe389fe4026eeb7f2c83de.gif" width=99/>
+
+<sub>[gordon](https://github.com/thejedihunter)  ⠀  ⠀[domo](https://github.com/snowyrescue)  ⠀  ⠀[mabel](https://github.com/mabeltergent)  ⠀  ⠀us ok?
+
+
+
+
 
 
 
 <div align="center">
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fcf20edd-b2ef-413a-9ba4-2c15355613de" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f302535f-758f-40fe-892b-deed7cb44a43" /> <img src="https://64.media.tumblr.com/3d2127349d998db8efa5d7430ae21da6/55e2c8658203e626-c0/s250x400/adeedf8cd734f2fd0cbe389fe4026eeb7f2c83de.gif" width=99/>
-
-<sub>[gordon](https://github.com/thejedihunter)  ⠀  ⠀[domo](https://github.com/snowyrescue)  ⠀  ⠀[mabel](https://github.com/mabeltergent)  ⠀  ⠀us ok?
-
+<img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/><img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/>
 
 
 
