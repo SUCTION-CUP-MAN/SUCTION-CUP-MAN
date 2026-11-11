@@ -1,5 +1,5 @@
 
-- - -
+
 
 <br><p align="center">${\textsf{\color{#dd5267}𖥻 ׁevan⠀  or⠀  sam}}$⠀  <img src="https://64.media.tumblr.com/45b305094624fc4561a61b9ca7808e0f/5bf23da5dbe7ae41-24/s75x75_c1/c38c04dda15932efd1e786eab1aa761c1e37bb50.pnj" width=19/>
 <br><p align="center">${\textsf{\color{#e6cac9} ׁalways⠀   interact⠀   with⠀   caution⠀   unless⠀   friends   ⠀   (๑ᵔ⤙ᵔ๑)}}$
@@ -11,12 +11,9 @@
 
 <img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/><img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/>
 
-
 <br><p align="center"><sub>[ata](https://soul-vester.atabook.org/) ⠀  ⠀[strawpage](https://soulvesterr.straw.page/) 
 
 <div align="center">
-
-
 
 <div align="center">
 
