@@ -1,6 +1,6 @@
 
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=(ᵔwᵔ)&color=bc113d" />
+<img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=(ᵔwᵔ)&color=4d3358" />
 <br><p align="center">${\textsf{\color{#392646}𖥻 ׁevan⠀  or⠀  sam⠀,  15yr }}$⠀  <img src="https://64.media.tumblr.com/45b305094624fc4561a61b9ca7808e0f/5bf23da5dbe7ae41-24/s75x75_c1/c38c04dda15932efd1e786eab1aa761c1e37bb50.pnj" width=19/>
 <br><p align="center">${\textsf{\color{#9f544e} ׁalways⠀   interact⠀   with⠀   caution⠀   unless⠀   friends   ⠀   (๑ᵔ⤙ᵔ๑)}}$
 <br><p align="center">${\textsf{\color{#73421f} ׁi⠀   dont⠀   really⠀   care ⠀  who⠀   i ⠀  interact⠀   with⠀   unless⠀   it's⠀   a ⠀  pro/dark }}$
