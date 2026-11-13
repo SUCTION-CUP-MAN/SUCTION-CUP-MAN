@@ -1,10 +1,10 @@
 
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=(ᵔwᵔ)&color=bc113d" />
-<br><p align="center">${\textsf{\color{#dd5267}𖥻 ׁevan⠀  or⠀  sam⠀,  15yr }}$⠀  <img src="https://64.media.tumblr.com/45b305094624fc4561a61b9ca7808e0f/5bf23da5dbe7ae41-24/s75x75_c1/c38c04dda15932efd1e786eab1aa761c1e37bb50.pnj" width=19/>
-<br><p align="center">${\textsf{\color{#e6cac9} ׁalways⠀   interact⠀   with⠀   caution⠀   unless⠀   friends   ⠀   (๑ᵔ⤙ᵔ๑)}}$
-<br><p align="center">${\textsf{\color{#e9a28e} ׁi⠀   dont⠀   really⠀   care ⠀  who⠀   i ⠀  interact⠀   with⠀   unless⠀   it's⠀   a ⠀  pro/dark }}$
-<br><p align="center">${\textsf{\color{#dd5267} ׁpro ⠀  or⠀  dark⠀  intwec⠀  +⠀  iwecuc⠀ (all to most are blocked) }}$
+<br><p align="center">${\textsf{\color{#392646}𖥻 ׁevan⠀  or⠀  sam⠀,  15yr }}$⠀  <img src="https://64.media.tumblr.com/45b305094624fc4561a61b9ca7808e0f/5bf23da5dbe7ae41-24/s75x75_c1/c38c04dda15932efd1e786eab1aa761c1e37bb50.pnj" width=19/>
+<br><p align="center">${\textsf{\color{#9f544e} ׁalways⠀   interact⠀   with⠀   caution⠀   unless⠀   friends   ⠀   (๑ᵔ⤙ᵔ๑)}}$
+<br><p align="center">${\textsf{\color{#73421f} ׁi⠀   dont⠀   really⠀   care ⠀  who⠀   i ⠀  interact⠀   with⠀   unless⠀   it's⠀   a ⠀  pro/dark }}$
+<br><p align="center">${\textsf{\color{#522238} ׁpro ⠀  or⠀  dark⠀  intwec⠀  +⠀  iwecuc⠀ (all to most are blocked) }}$
 
 
 <sub> actually dni if ur friends with @ourcrimsonskies and @FrazzledFur LMAOOO RACIST ??????????? OUT OF EVERYTHING I NEVER AND EVER EXPECTED THAT, this really adds the cherry on top of everything and uhmm FFR OR WHATEVER FFA is disbanded? or ? like gone idk, that's that i guess end of a group that died soon glad for that? More and more lying gets added to codys plate too, legit proof of them supporting meowbahh </333, anyways FFR will ??? never be missed lol
