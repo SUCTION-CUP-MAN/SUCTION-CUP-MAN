@@ -9,6 +9,8 @@
   
 <sub>(i really dont like either of them sorry, i don't care if ur friends with them just dont bring them up at all. Same applies for the topic of FFA unless strictly TWS, or important. I do not want to be apart of the drama nor will my perspective change about these people i'm glad i could be somebody to give out the awareness and i always will this will always be there to stay, none of it is debunked and only accused until we get solid evidence/proof that's when it can finally be debunked. To pro/darks please keep it private or never speak to me about it, i don't care what you do privately just don't do it around me or publicly thanks.)
 
+<sub> yo actually dni if ur friends with @ourcrimsonskies and @FrazzledFur LMAOOO RACIST ??????????? OUT OF EVERYTHING I NEVER AND EVER EXPECTED THAT, this really adds the cherry on top of everything and uhmm FFR OR WHATEVER FFA is disbanded? or ? like gone idk, that's that i guess end of a group that died soon glad for that?
+
 <div align="center">
   
 <sub>[ata](https://soul-vester.atabook.org/) ⠀  ⠀[strawpage](https://soulvesterr.straw.page/) 
