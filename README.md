@@ -1,7 +1,7 @@
 
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=(ᵔwᵔ)&color=4d3358" />
-<br><p align="center">${\textsf{\color{#392646}𖥻 ׁevan⠀  or⠀  sam⠀,  15yr }}$⠀  <img src="https://64.media.tumblr.com/45b305094624fc4561a61b9ca7808e0f/5bf23da5dbe7ae41-24/s75x75_c1/c38c04dda15932efd1e786eab1aa761c1e37bb50.pnj" width=19/>
+<br><p align="center">${\textsf{\color{#392646}𖥻 ׁevan⠀  or⠀  sam⠀,  15yr }}$⠀  
 <br><p align="center">${\textsf{\color{#9f544e} ׁalways⠀   interact⠀   with⠀   caution⠀   unless⠀   friends   ⠀   (๑ᵔ⤙ᵔ๑)}}$
 <br><p align="center">${\textsf{\color{#73421f} ׁi⠀   dont⠀   really⠀   care ⠀  who⠀   i ⠀  interact⠀   with⠀   unless⠀   it's⠀   a ⠀  pro/dark }}$
 <br><p align="center">${\textsf{\color{#522238} ׁpro ⠀  or⠀  dark⠀  intwec⠀  +⠀  iwecuc⠀ (all to most are blocked) }}$
@@ -42,7 +42,7 @@ https://github.com/user-attachments/assets/5c7d541b-7cce-407a-8ed9-2484b30927cf
 
 <div align="center">
 
-<img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/><img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/>
+<img src="https://64.media.tumblr.com/689d3ea176d786c85d09daaa070a9228/a0bd99f7cbf0986a-5e/s400x600/9939846d98bbcb6caaca065c5b32811224302fa9.gif" width=350/><img src="https://64.media.tumblr.com/b3a743521dc71e1503f514f1a195d294/a0bd99f7cbf0986a-39/s250x400/1e2ce64b3f14417805d37f8689751ab35f6860a5.gif" width=350/>
 
 
 
