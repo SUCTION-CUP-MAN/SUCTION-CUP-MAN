@@ -10,6 +10,7 @@
 <sub> actually dni if ur friends with @ourcrimsonskies and @FrazzledFur LMAOOO RACIST ??????????? OUT OF EVERYTHING I NEVER AND EVER EXPECTED THAT, this really adds the cherry on top of everything and uhmm FFR OR WHATEVER FFA is disbanded? or ? like gone idk, that's that i guess end of a group that died soon glad for that? More and more lying gets added to codys plate too, legit proof of them supporting meowbahh </333, anyways FFR will ??? never be missed lol
 
 
+"rip ffr </3" me and domo out here
 
 https://github.com/user-attachments/assets/5c7d541b-7cce-407a-8ed9-2484b30927cf
 
