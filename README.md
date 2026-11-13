@@ -12,6 +12,8 @@
 
 "rip ffr </3" me and domo out here
 
+[Read Paw's DOC on cody they were an ex-friend now coming out to rightfully give the info.](https://docs.google.com/document/d/1hbPU59Z7l1uijMK4FmM77pVJdzCb4hSraEpPtnn1aeQ/edit?tab=t.0)
+
 https://github.com/user-attachments/assets/5c7d541b-7cce-407a-8ed9-2484b30927cf
 
 <sub> FFR was a group that supported and encouraged Cody's yume with gourdy and actions, making cody think its ok do to these things: The Whole GROUP was enablers and extremely unhealthy. Thank god it disbanded, be GLAD it disbanded. Hope they all depart safe and all further away, im just glad i don't have to deal with the bullshit they do to get out of the stuff they caused themselves or set a deeper grave to dig in. "Evan but they want to heal!" Hasn't tried, never bothered, has stated it, has been SHOWN proof of that too, Cody and Vassago are both just terrible people for different reasons at the end of the day no matter how much they try to defend themselves, the proof is shown and overflowing yet never admits it's wrong, nor do they bother too! Hope they both realize that they got themselves trapped in a hole that isn't reachable to the surface lol
