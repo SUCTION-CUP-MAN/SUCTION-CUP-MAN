@@ -9,6 +9,12 @@
 
 <sub> actually dni if ur friends with @ourcrimsonskies and @FrazzledFur LMAOOO RACIST ??????????? OUT OF EVERYTHING I NEVER AND EVER EXPECTED THAT, this really adds the cherry on top of everything and uhmm FFR OR WHATEVER FFA is disbanded? or ? like gone idk, that's that i guess end of a group that died soon glad for that? More and more lying gets added to codys plate too, legit proof of them supporting meowbahh </333, anyways FFR will ??? never be missed lol
 
+
+
+https://github.com/user-attachments/assets/5c7d541b-7cce-407a-8ed9-2484b30927cf
+
+
+
 <div align="center">
   
 <sub>[ata](https://soul-vester.atabook.org/) ⠀  ⠀[strawpage](https://soulvesterr.straw.page/) 
@@ -36,7 +42,7 @@
 <img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/><img src="https://64.media.tumblr.com/de2dbae38bc621609df68c79d102d0c9/fcd878469df1941d-df/s2048x3072/53b30ccdcf2aeae1a0fd96045684873493f99363.pnj" width=350/>
 
 
-https://github.com/user-attachments/assets/96f26f91-814d-46c5-be7b-fa78651afa6b
+
 
 
 <table align="center"><th>
