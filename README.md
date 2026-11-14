@@ -12,7 +12,11 @@
 
 "rip ffr </3" me and domo out here
 
-[Read Paw's DOC on cody he was an ex-friend of @FrazzledFur / @m4gg0tz now coming out to rightfully giving the info.](https://docs.google.com/document/d/1hbPU59Z7l1uijMK4FmM77pVJdzCb4hSraEpPtnn1aeQ/edit?tab=t.0)
+[Read Paw's DOC on cody he was an ex-friend of @FrazzledFur / @m4gg0tz now coming out to right
+fully giving the info.](https://docs.google.com/document/d/1hbPU59Z7l1uijMK4FmM77pVJdzCb4hSraEpPtnn1aeQ/edit?tab=t.0)
+
+[Reply doc to Pawlickk's Doc](
+https://docs.google.com/document/d/1ZX5suhAj79GyPM3ksDckrjQQmOOzBgAeR8o4rx47ywI/edit?tab=t.0)
 
 https://github.com/user-attachments/assets/5c7d541b-7cce-407a-8ed9-2484b30927cf
 
